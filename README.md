@@ -8,7 +8,7 @@
 
 - 📫 How to reach me **saxenarajat499@gmail.com**
 
-- 📄 Know about my experiences **[https://drive.google.com/file/d/1DklQKYh3KRLNY3p77Zz8cBYyigJAfBrI/view?usp=sharing](https://drive.google.com/file/d/1DklQKYh3KRLNY3p77Zz8cBYyigJAfBrI/view?usp=sharing)**
+- 📄 Know about my experiences **[https://drive.google.com/file/d/1dtC6X_C7tTNgsp3FHirszUsnv2a6FJLr/view?usp=drive_link](https://drive.google.com/file/d/1dtC6X_C7tTNgsp3FHirszUsnv2a6FJLr/view?usp=drive_link)**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
