@@ -5,7 +5,7 @@
 - 🔭 I'm currently working on **a full-stack project that includes Geographic Information System (GIS) functionality with remote sensing capability.**
 - 🌱 I'm currently learning **Go lang, MLOps**
 - 📫 How to reach me: **saxenarajat499@gmail.com**
-- 📄 Know about my experiences: [Resume](https://drive.google.com/file/d/1dtC6X_C7tTNgsp3FHirszUsnv2a6FJLr/view?usp=drive_link)
+- 📄 Know about my experiences: [Resume](https://drive.google.com/file/d/1zqnS1GUaDECw2PVpwCyUVPXLIrCLdNdw/view?usp=sharing)
 
 ### Connect with me:
 
